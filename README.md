@@ -46,3 +46,12 @@ jarritos
 apple juice
 orange juice
 tea
+
+DAY 2:
+
+Breakfast: Breakfast meet sandwich (pause) with egg and cheese, veggie omlette 
+
+Lunch: Double bacon cheeseburger with two patties,
+salad 
+
+Dinner: Steak with compound butter, chicken and brown rice
